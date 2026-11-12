@@ -2,6 +2,7 @@
 - I help businesses make data-driven decisions by uncovering valuable insights from complex data.
 - I’m looking to collaborate on projects and network with like-minded people.
 - I'm also open to new and exciting oppotunities.
-- You can reach me via **[Email](mailto:modestonyedum@gmail.com)** or **[LinkedIn](https://linkedin.com/in/modestusonyedum)**
+- You can reach me via **[Email](mailto:modestonyedum@gmail.com)** or **[LinkedIn](https://linkedin.com/in/modestusonyedum)**.
+<br> Thank you
 
 
